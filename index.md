@@ -153,6 +153,8 @@ As part of our Erasmus+ initiative, project partners actively disseminated the o
 - 🔗 [Scoala 56 Erasmus Page](https://scoala56.ro/erasmus/)
 - 🔗 [Agrupamento de Escolas de Tabuaço](https://agrupamento-tabuaco.com/projetos-europeus/erasmus/)
 - 🔗 [Facebook Highlights](https://www.facebook.com/share/p/1A1MAwCypk/?mibextid=wwXIfr)
+- 🔗 [St. Aidans Community School](https://77bf0745.flowpaper.com/40958ACCSnewsAprcopy/)
+
 
 ---
 
